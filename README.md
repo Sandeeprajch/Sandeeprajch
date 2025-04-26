@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sandeeprajch
-- 👀 I’m interested in ...LEarning new skils
+- 👀 I’m interested in ...Learning new skils
 - 🌱 I’m currently learning ... WEB D and Software Development 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...Instagram Sandeeprajch
